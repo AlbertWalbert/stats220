@@ -11,5 +11,5 @@ A little about me:
 
 
 **Here are two memes that captures how I currently feel about my university studies:**
-1. ![](https://tenor.com/view/this-is-fine-gif-24177057)
+1. ![This is fine gif](https://tenor.com/view/this-is-fine-gif-24177057)
 2. [Emoji screaming then fading away](https://www.youtube.com/watch?v=9ELuywjE9ck)
